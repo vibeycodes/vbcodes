@@ -2,5 +2,5 @@
 - 👀 I’m interested in Languages (cultural and prog)
 - 🌱 I’m currently learning Python, R
 - 💞️ I’m open to collaborate based on your suggestions
-- 📫 How to reach me @vaishnavimdb on X
+- 📫 How to reach me: @vaishnavimdb on X
 - 🌼 Hindi, Korean, Finnish, Norwegian
